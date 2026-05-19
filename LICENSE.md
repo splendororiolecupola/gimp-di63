@@ -1,4 +1,4 @@
-# 
+# rare Adobe Photoshop for PC addons is the best Adobe Photoshop for PC addons with smoke-simulation and motion-tracking. Safe, reliable, and optimized for maximum performance.
 
 
 
